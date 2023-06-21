@@ -1,0 +1,1 @@
+# Shitcoin_Trading_Company
